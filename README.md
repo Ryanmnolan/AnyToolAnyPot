@@ -5,7 +5,7 @@ Can not be sold from person to person or company to company
 
 
 
-Credit
+Credits
 Ken Spaulding
 Brother CNC Operators Facebook 
 Brother slack 
